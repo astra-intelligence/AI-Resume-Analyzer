@@ -95,5 +95,5 @@ I'm a Full Stack Data Scientist
 
 💬 more details loading
 
-![Logo](https://mug-prophet-evident-concern.trycloudflare.com/card?user=bhaveshk22)
+![Logo](https://jimmy-multiple-des-asset.trycloudflare.com/card?user=bhaveshk22)
 
