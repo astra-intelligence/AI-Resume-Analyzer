@@ -95,5 +95,4 @@ I'm a Full Stack Data Scientist
 
 💬 more details loading
 
-![Logo](https://jimmy-multiple-des-asset.trycloudflare.com/card?user=bhaveshk22)
-
+![Logo](https://canal-dimensions-losing-affiliates.trycloudflare.com/card?user=bhaveshk22)
