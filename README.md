@@ -95,4 +95,4 @@ I'm a Full Stack Data Scientist
 
 💬 more details loading
 
-![Logo](https://supported-tied-colony-jews.trycloudflare.com/card?user=bhaveshk22)
+![Logo](https://revenue-tough-hindu-recommendations.trycloudflare.com/card?user=bhaveshk22)
