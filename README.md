@@ -95,4 +95,4 @@ I'm a Full Stack Data Scientist
 
 💬 more details loading
 
-![Logo](https://diabetes-son-sim-progressive.trycloudflare.com/card?user=bhaveshk22)
+![Logo](https://practitioners-ruled-periodically-flashers.trycloudflare.com/card?user=bhaveshk22)
