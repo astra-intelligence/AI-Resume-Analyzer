@@ -95,4 +95,4 @@ I'm a Full Stack Data Scientist
 
 💬 more details loading
 
-![Logo](https://turned-conflict-affiliate-acting.trycloudflare.com/card?user=bhaveshk22)
+![Logo](https://rotation-statistics-philip-quiz.trycloudflare.com/card?user=bhaveshk22)
